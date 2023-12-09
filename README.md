@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently working on **personal projects**
 
-- 🌱 I’m currently learning **Nuxt**
+- 🌱 Currently learning **Nuxt**
 
 - 💬 Ask me about **MERN Stack,Java**
 
