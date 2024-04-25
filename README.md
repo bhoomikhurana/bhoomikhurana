@@ -8,7 +8,7 @@
 
 - 🌱 Currently learning **Nuxt**
 
-- 💬 Ask me about **MERN Stack,Java**
+- 💬 Ask me about **MERN Stack and Java**
 
 - 📫 How to reach me **bhoomi0612@gmail.com**
 
