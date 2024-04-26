@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **bhoomi0612@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1IrP8sOc-9Zy6XKu-ZKfsj0V3LyTIhzHq/view?usp=sharing](https://drive.google.com/file/d/1IrP8sOc-9Zy6XKu-ZKfsj0V3LyTIhzHq/view?usp=sharing](https://drive.google.com/file/d/1Y8HYejISSJzH-s9-2jtIH6kCXlIUI3AM/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1Y8HYejISSJzH-s9-2jtIH6kCXlIUI3AM/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
